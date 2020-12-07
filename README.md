@@ -2,4 +2,4 @@
 
 Página inicial do repositório
 
-djfidjsf,,asdasd
+Apaguei as porcarias
